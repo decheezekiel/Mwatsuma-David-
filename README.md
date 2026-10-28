@@ -1,2 +1,1 @@
-# Mwatsuma-David-
-Prayer 🙏 secretary JKUAT CU
+# Molecular biology 🧫 # Data analyst # Web developer.Hi there 👋 it's David here a Passionate Reseacheer in molecular biology 🧫 focusing  on  surveillance on both asymptomatic and symptomsatic individuals focusing on malaria caused by  🦟 Plasmodium falciparum, Plasmodium malaria 🦟 and other mosquito species which cause recrudescence.
